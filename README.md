@@ -20,11 +20,13 @@ Little bit about me ~ !
 
 ʚ૮₍⑅> ⩊ <⑅₎აɞ I'm an artist and poet and love all things creative, pls pls show me your art I'd love to see it<3
 
-୨⎯⎯♡⎯⎯୧ I LOVE: MLP toys, LPS toys, Shopkins, Figure collecting, little trinkets of all kinds, crafting, drawing, Plushies, Cutecore, tarot cards, symbols and kaomojis, Whimsical things, pretty clothes, fashion, accessories (especially bows!), commentery vids.
+୨⎯⎯♡⎯⎯୧ I LOVE: MLP toys, LPS toys, Shopkins, Figure collecting, little trinkets of all kinds, crafting, drawing, Plushies, Cutecore, tarot cards, symbols and kaomojis, Whimsical things, pretty clothes, fashion, accessories (especially bows), commentery vids, bugs (especially isopods, caterpillars and millipedes)
 
 ⎯⎯ Youtubers I like: Danny Gonzalez, Drew Gooden, Funkyfrogbait, Kurtis Conner, DramaKween, Not even Emily, Izzzyzzz
 
-୨⎯⎯✘⎯⎯୧ I HATE: people who hate on others for being different/doing things that don't harm anyone, liars, bullies
+⎯⎯ Feel free to recommend me music! I love discovering new music. I especially love to "exchange" songs with my friends <3
+
+୨⎯⎯✘⎯⎯୧ I HATE: people who hate on others for being different/doing things that don't harm anyone, liars, bullies, mean people
 
 ಎ( ྀི ɞ̴̶̷̤ ̫✚)ﾉ Huge Bubbles kin!
 
@@ -37,6 +39,7 @@ Little bit about me ~ !
 ◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ◟ ͜ ◞ ೀ
 
 Pony Town info ~ !
+
 ⎯⎯ I'm pretty much online all the time except for when I'm sleeping or outside.
 
 ⎯⎯ Where can you find me ? Usually at docks (^_^) but I also lurk in the library / all around the map!
