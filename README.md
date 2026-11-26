@@ -3,6 +3,9 @@
 <img width="1500" height="500" alt="Başlıksız356_20261125023036" src="https://github.com/user-attachments/assets/33b724aa-d7ec-4c56-856e-2d5b453e065a" />
 <img width="2048" height="165" alt="image" src="https://github.com/user-attachments/assets/b7e0a1ef-3969-4979-8040-726c3a0201c5" />
 
+:·..·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·::·..·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·.
+࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙୨୧࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜
+
 ˚‧♪⁺∗૮꒰｡ര ᎑ ര｡૮ ꒱ U can int if you're under 16 BUT I won't be friends with you! UNLESS we're already friends (ᵕ ´ ∇ ˋ ˶)
 
 ꉂ₍^› ꘍ ‹ ^₎⟆ Tone tags sometimes needed! Though itz okay if you can't always use them or forget to! Itz just that I have a hard time understanding tones at time.
@@ -14,6 +17,8 @@ ASK to add me on discord or other socials !
 ・
 
 ・
+
+   ꦌ.݁‿̩͙◞˖~◜ ͡ 𑁧｡‿̩͙𐓨◜ ͡ ◝⑅◟_𓂃.݁ ੭
 
 Little bit about me ~ !
 ε( ∈ 。· ɷ ·)♡ Hy/hym/hys 𝜗ৎ trans masc
@@ -36,7 +41,7 @@ Little bit about me ~ !
 
 ・
 
-◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ ◟ ͜ ◞ ೀ◟ ͜ ◞ ೀ
+ ༝ ◜ ͡ ◝ৎ ͜ ◞ ۫ ♪ ◌ ⏜୨ৎ ⊹ ೀ
 
 Pony Town info ~ !
 
@@ -51,3 +56,7 @@ Pony Town info ~ !
 ⎯⎯ I don't like friending people before at least getting to know them a bit, so chat with me a lil if you wanna be frens :3 I don't accept random friend reqs or party invites.
 
 ⎯⎯ DON'T copy my skins obviously >:[ unless I personally gave you my permission to do so or gifted you a pony! Inspo is fine unless you colorpick my ponies or really really heavily use my ideas.
+
+:·..·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·::·..·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·. .·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·..·:¨¨:·.
+࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙୨୧࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜
+
