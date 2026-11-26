@@ -24,9 +24,9 @@ Little bit about me ~ !
 
 ʚ૮₍⑅> ⩊ <⑅₎აɞ I'm an artist and poet and love all things creative, pls pls show me your art I'd love to see it<3
 
-୨⎯⎯♡⎯⎯୧ I LOVE: MLP toys, LPS toys, Shopkins, Figure collecting, little trinkets of all kinds, crafting, drawing, Plushies, Cutecore, tarot cards, symbols and kaomojis, Whimsical things, pretty clothes, fashion, accessories (especially bows), commentery vids, bugs (especially isopods, caterpillars and millipedes)
+୨⎯⎯♡⎯⎯୧ I LOVE: MLP toys, LPS toys, Shopkins, Figure collecting, little trinkets of all kinds, crafting, drawing, Plushies, Cutecore, tarot cards, symbols and kaomojis, Whimsical things, pretty clothes, fashion, accessories (especially bows), commentery vids, bugs (especially isopods, millipedes and caterpillars)
 
-⎯⎯ Youtubers I like: Danny Gonzalez, Drew Gooden, Funkyfrogbait, Kurtis Conner, DramaKween, Not even Emily, Izzzyzzz
+⎯⎯ Youtubers I like: Danny Gonzalez, Drew Gooden, Funkyfrogbait, Kurtis Conner, DramaKween, Not even Emily, Izzzyzzz, Benoftheweek, Max Fosh
 
 ⎯⎯ Feel free to recommend me music! I love discovering new music. I especially love to "exchange" songs with my friends <3
 
